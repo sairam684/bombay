@@ -1,2 +1,3 @@
 this my friend nanda
-this is my old frirnd karthik
+this is my old friend karthik
+
